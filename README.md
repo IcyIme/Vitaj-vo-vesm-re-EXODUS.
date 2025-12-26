@@ -1759,3 +1759,6 @@ Explózia Nyx-Aeterna nezabila len ľudí.
 ---
 
 *„Utiekli sme pred démonom, ktorého sme stvorili. Zničili sme galaxiu. A namiesto toho, aby sme sa zjednotili, hádžeme vinu na seba navzájom. Možno si zaslúžime vyhynut
+
+
+rezervujem si na toto vsetky prava ziadne copy 
