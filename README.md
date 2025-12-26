@@ -1,4 +1,4 @@
-# Lore sveta **STELLAR DOMINION: ÉCHA SKAZY**
+# Lore sveta **NYX-EXODUS: ÉCHA SKAZY**
 
 ---
 
